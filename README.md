@@ -1,0 +1,1 @@
+Até o momento o curso tem sido muito bom, apesar de algumas dificuldades tenho conseguido evoluir e me orgulhar dos novos conhecimentos.
